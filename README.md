@@ -1,1 +1,1 @@
-# CapitalsquizbyMB.github.io
+# CapitalsquizbyMB
